@@ -1,4 +1,4 @@
-
+NordPass for macOS smart Addon: secure-notes & two-factor-authentication offers the most advanced NordPass for macOS addon, with secure-notes and two-factor-authentication. Ideal
 
 
 
